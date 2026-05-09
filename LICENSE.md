@@ -1,4 +1,4 @@
-
+Get the ultimate iStat Menus for macOS addon with instant iStat Menus for macOS Addon | hotkey-customization + cloud-sync. Featuring hotkey-customization and cloud-sync, it's the
 
 
 
